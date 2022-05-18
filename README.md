@@ -1,1 +1,1 @@
-# goldmod
+Gold Mods (Official)
